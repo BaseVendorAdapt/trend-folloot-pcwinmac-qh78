@@ -1,4 +1,4 @@
-# 
+# Automatic trend-following bot presets for Mac OS | Premium trend-following bot presets for PC Windows. Featuring market making and yield farming — optimized for maximum performance on every platform.
 
 
 
